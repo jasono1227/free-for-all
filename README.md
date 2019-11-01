@@ -8,4 +8,4 @@
 
   Some people even think video games can cause **violence** and **agression**. Everyone reacts to video games in different ways. Personally, ive been playing video games ever since i can remember and im no where near a violent or aggresive person.
 
-On https://www.sciencedirect.com/science/article/pii/S135917891000073X
+On [GitHub](https://www.sciencedirect.com/science/article/pii/S135917891000073X)
