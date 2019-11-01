@@ -14,9 +14,9 @@ other than our own behaviors and ideologies for societal violence, especially gu
 
 [Sciencedirect.com](https://www.sciencedirect.com/science/article/pii/S135917891000073X) says games such as:
 
-1 Grand Thieft Auto
-1 Call of duty 
-1 Fortnite
-1 FPS games
+1. Grand Thieft Auto
+1. Call of duty 
+1. Fortnite
+1. FPS games
 
 Can possibly cause issues. I play all these games almost every single day, and ive never even had thoughts of violnce or agression.
