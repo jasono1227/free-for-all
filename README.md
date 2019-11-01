@@ -20,3 +20,12 @@ other than our own behaviors and ideologies for societal violence, especially gu
 1. FPS games
 
 Can possibly cause issues. I play all these games almost every single day, and ive never even had thoughts of violnce or agression.
+
+# Health issues
+
+It is proven by 
+ * Long term usage
+ * Bright flashes/ lights
+ * constant changes in brightness
+ 
+ These are proven to cause short term problems with your eyes. If you constantly unergo those things it can cause eye twitching.
